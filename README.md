@@ -6,7 +6,7 @@
 
 Sejam bem-vindos ao meu perfil! :sunglasses:
 
-Sou de Petrópolis/RJ, tenho 33 anos e sou um apaixonado por tecnologia desde que me lembro. Cresci dentro de uma locadora de vídeo games e tenho isso como hobby até hoje, jogo de FM a LOL e estou sempre em busca de novidades.
+Sou de Salvador/BA mas moro atualmente no RJ, tenho 33 anos e sou um apaixonado por tecnologia desde que me lembro. Cresci dentro de uma locadora de vídeo games e tenho isso como hobby até hoje, jogo de FM a LOL e estou sempre em busca de novidades.
 
 &nbsp;
 
