@@ -11,7 +11,7 @@ Sou de Petrópolis/RJ, tenho 33 anos e sou um apaixonado por tecnologia desde qu
 &nbsp;
 
 
-![old game](https://github.com/cinthia-queiroz/cinthia-queiroz/blob/main/video-games-retro.gif)
+![old game](https://github.com/paim-victor/paim-victor/blob/main/video-games-retro.gif)
 
 &nbsp;
 
